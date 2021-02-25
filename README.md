@@ -1,2 +1,2 @@
-# Hwang-Yoonji's Portfolio
+# Hwang-YoonJi's Portfolio
 <https://hyj00.com/>
